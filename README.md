@@ -1,0 +1,7 @@
+- 👋 Supp, I’m @AlekCG
+- 👀 I’m interested in hardware and software, basically hacking stuff
+- 🌱 I’m currently learning program languages and hardware basic
+- 💞️ I’m looking to collaborate on basic software
+- 📫 You can be me friend in discord, text me before
+- 🐢 I like to learn more every day, searching for improve
+- 🍣 Sushi is life
